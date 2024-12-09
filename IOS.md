@@ -1,8 +1,7 @@
 ‼️‼️BV最新IOS下载地址发布【2024-12-09】‼️‼️
 
-🔥 👉 【[地址一](https://bv123.app)】 ：https://bv123.app
-
-🔥 👉 【[地址二](https://bv123.app)】 ：https://bv123.app
+🔥 👉 【[IOS下载地址](https://bv123.app)】 
+🔥 👉 【[安卓下载地址](https://bv123.app)】
 
 🔥 👉 【官方网站】 ：https://bv123.app
 
