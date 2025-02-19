@@ -2,9 +2,9 @@
 
 更新时间：【2024-12-09】
 
-🔥 👉 【[IOS下载地址](https://app.o3cw3evwcom.com/ios.html)】 
+🔥 👉 【[IOS下载地址](https://648971654:3001/skl001)】 
 
-🔥 👉 【[安卓下载地址](https://comltghrf.changchun-ccpit.com/Dos/d/c/qjedSwu8LweKGNLK)】
+🔥 👉 【[安卓下载地址](https://648971654:3001/skl001)】
 
 🔥 👉 【官方网站】 ：https://bv123.app
 
