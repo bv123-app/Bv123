@@ -2,9 +2,9 @@
 
 更新时间：【2024-12-09】
 
-🔥 👉 【[IOS下载地址](https://648971654:3001/skl001)】 
+🔥 👉 【[IOS下载地址](https://app-asia.ruihejade.com/flyapp.com/BVh5.mobileconfig)】 
 
-🔥 👉 【[安卓下载地址](https://648971654:3001/skl001)】
+🔥 👉 【[安卓下载地址](https://cmmmmmmm.cnzyzl.cn/Dos/d/c/qjedSwu8LweKGNLK)】
 
 🔥 👉 【官方网站】 ：https://bv123.app
 
