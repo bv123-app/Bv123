@@ -4,7 +4,7 @@
 
 🔥 👉 【[IOS下载地址](https://app-asia.ruihejade.com/flyapp.com/BVh5.mobileconfig)】 
 
-🔥 👉 【[安卓下载地址](https://app.cvzawt7i7opl.com/)】
+🔥 👉 【[安卓下载地址1](https://app.cvzawt7i7opl.com/)】
 
 🔥 👉 【[安卓下载地址2](https://cosfdjdjnd.cnzyzl.cn/Dos/d/c/qjedSwu8LweKGNLK)】
 
