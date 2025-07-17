@@ -1,8 +1,8 @@
 ‼️‼️BV最新IOS下载地址发布‼️‼️
 
-更新时间：【2025-07-07】
+更新时间：【2025-07-017】
 
-🔥 👉 【[IOS下载地址](https://app-asia.ruihejade.com/flyapp.com/BVh5.mobileconfig)】 
+🔥 👉 【[IOS下载地址](https://app.cvzawt7i7opl.com)】 
 
 🔥 👉 【[安卓下载地址1](https://app.cvzawt7i7opl.com/)】
 
