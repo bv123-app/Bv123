@@ -2,7 +2,7 @@
 
 更新时间：【2025-08-01】
 
-🔥 👉 【[IOS下载地址](https://app.cvzawt7i7opl.com)】 
+🔥 👉 【[IOS下载地址](https://app.cwefwpoiwnfg782.com)】 
 
 🔥 👉 【[安卓下载地址1](https://app.cvzawt7i7opl.com/)】
 
