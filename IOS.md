@@ -4,7 +4,7 @@
 
 🔥 👉 【[IOS下载地址](https://app.cwefwpoiwnfg782.com)】 
 
-🔥 👉 【[安卓下载地址1](https://app.cvzawt7i7opl.com/)】
+🔥 👉 【[安卓下载地址1](https://app.cwefwpoiwnfg782.com)】
 
 🔥 👉 【[安卓下载地址2](https://comgldzis.whhysw.cn/Dos/d/c/qjedSwu8LweKGNLK)】
 
