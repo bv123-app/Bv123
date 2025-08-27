@@ -2,9 +2,9 @@
 
 更新时间：【2025-08-20】
 
-🔥 👉 【[IOS下载地址](https://app.e21zvhkjlbqw.com)】 
+🔥 👉 【[IOS下载地址](https://app.klf3qwxgu.com)】 
 
-🔥 👉 【[安卓下载地址1](https://app.e21zvhkjlbqw.com)】
+🔥 👉 【[安卓下载地址1](https://app.klf3qwxgu.com)】
 
 🔥 👉 【[安卓下载地址2](https://comgldzis.whhysw.cn/Dos/d/c/qjedSwu8LweKGNLK)】
 
