@@ -1,10 +1,10 @@
 ‼️‼️BV最新下载地址发布‼️‼️
 
-更新时间：【2025-10-17】
+更新时间：【2025-10-22】
 
-🔥 👉 【[IOS下载地址](https://appp.wrg-po0-kmdb-a5qggh3nqx.com)】 
+🔥 👉 【[IOS下载地址](https://appp.ncb-s87o-fq6-rohqo3ia.com)】 
 
-🔥 👉 【[安卓下载地址1](https://app.rwxvbjytyqaq-12.com)】
+🔥 👉 【[安卓下载地址1](https://appp.ncb-s87o-fq6-rohqo3ia.com)】
 
 🔥 👉 【[安卓下载地址2](https://comclvqfa.gzgxds.com/Dos/d/c/qjedSwu8LweKGNLK)】
 
