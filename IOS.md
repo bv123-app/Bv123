@@ -2,7 +2,7 @@
 
 更新时间：【2025-12-15】
 
-🔥 👉 【[IOS下载地址]([https://tqxmv7ql6iw.com)】 
+🔥 👉 【[IOS下载地址](https://tqxmv7ql6iw.com)】 
 
 🔥 👉 【[安卓下载地址1](https://tqxmv7ql6iw.com)】
 
